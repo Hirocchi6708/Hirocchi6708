@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I'm Hirocchi, an ordinary "Crafter". (/・ω・)/
+
+I can speak only Japanese.
+I use translation software for other languages.
